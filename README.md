@@ -11,4 +11,13 @@
 mostly online as the prototype from ppt
 
 
-# ⓘ GROWN ADULT
+# ⓘ YOUNG ADULT
+**17 pushing 18** ,
+————————•————————
+*names; zack , Zackary , dane , flores*
+|| he/they/him/their
+ <img width="474" height="474" alt="OIP" src="https://github.com/user-attachments/assets/a317ab05-e145-4a7e-8408-567213010f21" /> 
+MBTI-ISFP || D-PTSD
+Bday *:* dec, 15 08
+
+————————•————————  *''to flee the state i live in is my life goal''* {**dane 08**}
