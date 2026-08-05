@@ -5,7 +5,7 @@
  # **═══════੭﹕ ̊ ̟ ꒷꒦═══════** **DNI UNDER 16**
 
 # ⓘ YOUNG ADULT
-## **17 pushing 18 , employed , minority**
+## **17 pushing 18 , minority, mentaly disabled**
 
 
 
@@ -24,23 +24,22 @@ mama's boy
 
 ‣ ———•——— ♪ 
 
-please don't drag or educate me on something when i want to support someone Dearing to me
-
-I have idols, believe it or not. my idols that i love may not be your tea, and that's completely fine. 
-
-
-> Marissa lenti
-> Ashley Nichols
-> Jessica bravura
-> Michael zekas
-> Michael Kovac
-> Amanda Hufford
-> Alex rochan
-
-
-yes, some are in discourse, but I've been a fan since young, but what does it matter if I grew up with them presumably the longest as I can remember 
+please don't drag or educate me on something im highly fixated on ——♪°———
 
 —————
 
 likes;
-> aphmau, tadc, de, ppt, msm, movies, music, collectables, exercise, my best friend, art, animation, games, money, traveling, independence, science, nature, space, debates, sports
+> aphmau, tadc, de, ppt, msm, movies, music, collectables,
+> 
+>  exercise, my best friend, art, animation, games, money,
+> 
+> traveling, independence, science, nature, space, debates, sports, Pokémon, astrology, AHA, animation industry
+# **—————————•‣♪°•————————————————**
+# little more info^_^ || biograph on my background
+
+- born in western middle America
+> south Mexican Italian
+
+> white
+- English, German, spainlish, asl
+> Spanish American
