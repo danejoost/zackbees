@@ -1,5 +1,7 @@
 # _______•⟢DANE2tell᭡_______
-<img width="236" height="255" alt="9c8ccc946423791968014452ab3feb6c" src="https://github.com/user-attachments/assets/03b4ba63-218b-4c37-b694-2733a8d7a10d" />𓊆ྀིseveryly overcoming mental health❤︎𓊇ྀི     
+<img width="474" height="183" alt="image" src="https://github.com/user-attachments/assets/749f2ae5-ef43-4929-a999-52a50307b287" />
+
+𓊆ྀིseveryly overcoming mental health❤︎𓊇ྀི     
         𐔌   ᛝ   zackary  .ᐟ  𐂯   ~~⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 .⏔⏔⏔⏔ ꒰ ♡ ꒱ ⏔⏔⏔⏔~~     ⌗ㆍノ 
  # **═══════੭﹕ ̊ ̟ ꒷꒦═══════** **DNI UNDER 16**
@@ -14,7 +16,8 @@ names and pronouns
 
 
 > he/they/him/their
-<img width="403" height="435" alt="pomni__nervous_smile__by_tylermascola_diqy00i-pre" src="https://github.com/user-attachments/assets/972f11ca-4e4d-43ff-a790-970244a0da40" /> 
+<img width="474" height="264" alt="image" src="https://github.com/user-attachments/assets/eccd30cf-a8e2-4e8e-b955-353f21316ffd" />
+
 
 
 # ⏔⏔⏔⏔⏔⏔⏔ ꒰ ♡ ꒱ ⏔⏔⏔⏔⏔⏔⏔
@@ -31,7 +34,7 @@ please don't drag or educate me on something im highly fixated on ——♪°—
 likes;
 > aphmau, tadc, de, ppt, msm, movies, music, collectables,
 > 
->  exercise, my best friend, art, animation, games, money,
+>  exercise, my girlfriend, art, animation, games, money,
 > 
 > traveling, independence, science, nature, space, debates, sports, Pokémon, astrology, AHA, animation industry
 # **—————————•‣♪°•————————————————**
